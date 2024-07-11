@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything that gives me new ideas 
 - 📫 How to reach me 
 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... i am not nice 
 
 <!---
 aryawadhwa/aryawadhwa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
